@@ -223,4 +223,4 @@ iRoot is available as a **complete free version** with all features fully unlock
 Unlock the full potential of your Android device with iRoot today! Download now and take control!
 
 ---
-**Last updated:** 2026-10-01 20:48:32 UTC
+**Last updated:** 2026-10-02 00:27:45 UTC
